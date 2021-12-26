@@ -1,2 +1,2 @@
 Olexander Haidysh 528
-Olexiy Rubels
+Olexiy Rubel
